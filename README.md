@@ -1,1 +1,1 @@
-Testy sklepu intyernetowego www.policzona-szama.pl
+Testy sklepu internetowego www.policzona-szama.pl
